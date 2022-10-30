@@ -75,7 +75,7 @@ The sound of rocks in a tumbler pulled his attention back toward the chicken coo
 
 “W….W…W…Wh,” Zeke attempted to speak but his mouth refused. 
 
-When his backpedaling landed him against the house with a *THUNK* all he could think to do was run and hide.  He fumbled with the patio door and immediately locked and bolted it once he managed to get inside.  He was running on instinct, all he could think about was that a giant wolf spoke to him.  He must have snapped.  This couldn’t be real.  Zeke made his way to his room without once thinking about his chickens or Jack.  What was he supposed to do now? 
+When his backpedaling landed him against the house with a --*THUNK*-- all he could think to do was run and hide.  He fumbled with the patio door and immediately locked and bolted it once he managed to get inside.  He was running on instinct, all he could think about was that a giant wolf spoke to him.  He must have snapped.  This couldn’t be real.  Zeke made his way to his room without once thinking about his chickens or Jack.  What was he supposed to do now? 
 
 He slid back the curtains just a touch to look into the yard.  There it was, laying at the tree line, watching the house intently without a care in the world.  
 
