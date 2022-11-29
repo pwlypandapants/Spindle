@@ -31,7 +31,7 @@ Damn! He had forgotten she was working. Thirty minutes!?
 
   
 
-“C’mon Zach, you can keep it together for 30 damn minutes,” he muttered to himself, touching the top of his closed fist to his forehead a few times to drive home the point.
+“C’mon Zeke, you can keep it together for 30 damn minutes,” he muttered to himself, touching the top of his closed fist to his forehead a few times to drive home the point.
 
   
 
@@ -57,11 +57,11 @@ He immediately felt better now that he had something to do. Idle hands were alre
 
   
 
-Ixanae watched the boy with amusement. Their bond gave him a sixth-sense vision of Zach and his surroundings. He could see the room, he could read the texts, and he even got a vague sense of Zach’s plan to take a shower. Ixanae wondered how the next few hours would go now that he had been forced to show himself before he was ready.
+Ixanae watched the boy with amusement. Their bond gave him a sixth-sense vision of Zeke and his surroundings. He could see the room, he could read the texts, and he even got a vague sense of Zeke’s plan to take a shower. Ixanae wondered how the next few hours would go now that he had been forced to show himself before he was ready.
 
   
 
-The big lad had thwarted any plans for a meeting Ixanae had entertained before he really even had a chance to come up with a good one. One thing about this bond he and Zach shared –that he had just learned the hard way– was that if one of them was in danger, the other was compelled to help them out of instinct. “Just like how a mother will protect her child without a second thought,” Ixanae mused to the trees.
+The big lad had thwarted any plans for a meeting Ixanae had entertained before he really even had a chance to come up with a good one. One thing about this bond he and Zeke shared –that he had just learned the hard way– was that if one of them was in danger, the other was compelled to help them out of instinct. “Just like how a mother will protect her child without a second thought,” Ixanae mused to the trees.
 
   
 
@@ -69,7 +69,7 @@ The big lad had thwarted any plans for a meeting Ixanae had entertained before h
 
   
 
-Zach had spent much longer than he normally did in the shower. His mind was still coming apart at the edges, so he didn’t know exactly what time he’d gotten in, but still, it was way longer than normal. He grabbed his phone and checked to see how long it had been since Joyce had texted him last.
+Zeke had spent much longer than he normally did in the shower. His mind was still coming apart at the edges, so he didn’t know exactly what time he’d gotten in, but still, it was way longer than normal. He grabbed his phone and checked to see how long it had been since Joyce had texted him last.
 
   
 
@@ -85,7 +85,7 @@ Before he knew it, he felt a tap on his shoulder. He had gotten so into the medi
 
   
 
-“Zach, what’s the matter?” Joyce said breathlessly.
+“Zeke, what’s the matter?” Joyce said breathlessly.
 
   
 
@@ -97,15 +97,15 @@ She raised an eyebrow at him. “Go on,” she lead.
 
   
 
-He proceeded to tell her the story. Even while telling it, he sensed that it quickly devolved into an incoherent mess. His recently relaxed nerves quickly were on edge again as he relived the events he was describing. Joyce wore an expression of open contempt as he went through the bullying part of the story. She hated Jack with a passion for the way he treated Zach, but it barely registered with him as he continued.
+He proceeded to tell her the story. Even while telling it, he sensed that it quickly devolved into an incoherent mess. His recently relaxed nerves quickly were on edge again as he relived the events he was describing. Joyce wore an expression of open contempt as he went through the bullying part of the story. She hated Jack with a passion for the way he treated Zeke, but it barely registered with him as he continued.
 
   
 
-When he hit the part about the dog coming up from behind him, she gasped audibly. Zach chuckled mirthlessly. “You haven’t heard the worst part yet, Joyce,” he lamented.
+When he hit the part about the dog coming up from behind him, she gasped audibly. Zeke chuckled mirthlessly. “You haven’t heard the worst part yet, Joyce,” he lamented.
 
   
 
-Her whole countenance flipped to one of complete indignation when he went on to explain what happened next. “Zachary Brian Phillips, please tell me you did not call me over here for an emergency to tell me a fairy tale about a talking dog as a joke,” she seethed.
+Her whole countenance flipped to one of complete indignation when he went on to explain what happened next. “Ezekiel Brian Phillips, please tell me you did not call me over here for an emergency to tell me a fairy tale about a talking dog as a joke,” she seethed.
 
   
 
@@ -113,7 +113,7 @@ Her whole countenance flipped to one of complete indignation when he went on to 
 
   
 
-Zach was not above the occasional practical joke, but Joyce knew him well, and he was not the type of person that would take it too far. His serious tone combined with his body language gave her a very bad feeling.
+Zeke was not above the occasional practical joke, but Joyce knew him well, and he was not the type of person that would take it too far. His serious tone combined with his body language gave her a very bad feeling.
 
   
 
@@ -121,7 +121,7 @@ She was silent in thought for a few moments then simply said, “Show me.”
 
   
 
-Zach gave a jerk of surprise. “I am not going out there just to show you, Joyce. The thing is gigantic and could easily tear us both to bits. Look!” He dragged her over to the window and pointed out where the giant dog sat regally, head held high as if he was showing off for the two of them.
+Zeke gave a jerk of surprise. “I am not going out there just to show you, Joyce. The thing is gigantic and could easily tear us both to bits. Look!” He dragged her over to the window and pointed out where the giant dog sat regally, head held high as if he was showing off for the two of them.
 
   
 
@@ -129,7 +129,7 @@ Zach gave a jerk of surprise. “I am not going out there just to show you, Joyc
 
   
 
-Zach considered for a moment. He was a wuss, he knew it, she knew it, –heck– everyone knew it! But he had called Joyce just for this reason. He needed some sort of resolution to this mess before his parents got home. If going out there and trying to talk to the talking dog –he shook his head at the insanity of those words– was the only way to move forward then, he had to do it.
+Zeke considered for a moment. He was a wuss, he knew it, she knew it, –heck– everyone knew it! But he had called Joyce just for this reason. He needed some sort of resolution to this mess before his parents got home. If going out there and trying to talk to the talking dog –he shook his head at the insanity of those words– was the only way to move forward then, he had to do it.
 
   
 
@@ -137,7 +137,7 @@ Zach considered for a moment. He was a wuss, he knew it, she knew it, –heck–
 
   
 
-“Oh Zach, buck up man. If you really stumbled on to a giant talking dog that protects you, then you have just become the protagonist of like every single story that I’ve ever read. It will be friggin’ amazing!” she laughed. Even in the excitement of her words, Zach could sense that she still didn’t believe him. He couldn’t blame her. His story was wild. Fortunately, he had a feeling her tune would change on a dime in just a few short minutes.
+“Oh Zeke, buck up man. If you really stumbled on to a giant talking dog that protects you, then you have just become the protagonist of like every single story that I’ve ever read. It will be friggin’ amazing!” she laughed. Even in the excitement of her words, Zeke could sense that she still didn’t believe him. He couldn’t blame her. His story was wild. Fortunately, he had a feeling her tune would change on a dime in just a few short minutes.
 
   
 
@@ -149,11 +149,11 @@ Ixanae was on the move before the children even left the bedroom. This would do 
 
   
 
-Zach did not seem inclined to learn about him in the way that Ixanae had heard that bonds usually did. He didn’t know if the elders had been misinformed, lying, or what, but this bond seemed like he would rather run 100 miles in the opposite direction than explore the pull he was feeling in his soul toward Ixanae.
+Zeke did not seem inclined to learn about him in the way that Ixanae had heard that bonds usually did. He didn’t know if the elders had been misinformed, lying, or what, but this bond seemed like he would rather run 100 miles in the opposite direction than explore the pull he was feeling in his soul toward Ixanae.
 
   
 
-Ixanae didn’t think the child had even recognized the bond over the fear and anxiety their interaction from earlier had caused him. He found himself thankful for the female child as he approached the porch. She would be a good conduit for Zach to recognize and embrace the bond.
+Ixanae didn’t think the child had even recognized the bond over the fear and anxiety their interaction from earlier had caused him. He found himself thankful for the female child as he approached the porch. She would be a good conduit for Zeke to recognize and embrace the bond.
 
   
 
@@ -177,27 +177,27 @@ The girl child gave a squeak like a startled squirrel and took a few involuntary
 
   
 
-“Zachary! It spoke, did you hear that?” Joyce whisper-shouted.
+“Ezekiel! It spoke, did you hear that?” Joyce whisper-shouted.
 
   
 
-Zach just nodded at her like she was stupid. “Isn’t that what I just got finished telling you not five minutes ago, Joyce?” he replied incredulously.
+Zeke just nodded at her like she was stupid. “Isn’t that what I just got finished telling you not five minutes ago, Joyce?” he replied incredulously.
 
   
 
-Her eyes were wide as dinner plates. Blue with brown flakes, Zach thought to himself reflexively. “I–,” she tried to start, but her words seemed to stick in her mouth. She cleared her throat and tried again, “I obviously didn’t believe you, Zach, would you believe me if I said I could talk to animals!?”
+Her eyes were wide as dinner plates. Blue with brown flakes, Zeke thought to himself reflexively. “I–,” she tried to start, but her words seemed to stick in her mouth. She cleared her throat and tried again, “I obviously didn’t believe you, Zeke, would you believe me if I said I could talk to animals!?”
 
   
 
-Zach sighed. He couldn’t blame her, he supposed. His story was a bit farcical. He probably wouldn’t have believed it either if he hadn’t lived it.
+Zeke sighed. He couldn’t blame her, he supposed. His story was a bit farcical. He probably wouldn’t have believed it either if he hadn’t lived it.
 
   
 
-“Zach, My name is Ixanae. I am a cynanthrope and your bond. It is a pleasure to meet you,” the dog said.
+“Zeke, My name is Ixanae. I am a cynanthrope and your bond. It is a pleasure to meet you,” the dog said.
 
   
 
-He and Joyce stared with matching looks of astonishment on their faces. Zach tried to reply, but the words kept getting caught before they reached his mouth. A what? My bond? What kind of name is that? His mind felt broken, like he was on drugs or something, or maybe really drunk. Either way, he found it exceedingly difficult to function at the moment.
+He and Joyce stared with matching looks of astonishment on their faces. Zeke tried to reply, but the words kept getting caught before they reached his mouth. A what? My bond? What kind of name is that? His mind felt broken, like he was on drugs or something, or maybe really drunk. Either way, he found it exceedingly difficult to function at the moment.
 
   
 
@@ -217,19 +217,19 @@ Joyce was the first to recover. “Uh– nice to meet you, Ick–, Im sorry, wha
 
   
 
-“What’s that thing you called yourself?” Zach blurted without thinking. He recoiled as he realized that he might have insulted the beast.
+“What’s that thing you called yourself?” Zeke blurted without thinking. He recoiled as he realized that he might have insulted the beast.
 
   
 
-“Zachary, first of all, I’m not a beast. My brethren would consider being called such an insult, I understand you are not insulting me, but please refrain from calling me that moving forward. I am a cynanthrope. There are many myths and legends about my race, but none of them are true. In the interest of keeping things brief, suffice to say we are a race the creator’s tasked with humanity’s protection,” Ixanae said with a regal calm.
+“Zeke, first of all, I’m not a beast. My brethren would consider being called such an insult, I understand you are not insulting me, but please refrain from calling me that moving forward. I am a cynanthrope. There are many myths and legends about my race, but none of them are true. In the interest of keeping things brief, suffice to say we are a race the creator’s tasked with humanity’s protection,” Ixanae said with a regal calm.
 
   
 
-Zach had turned a pale shade of green at the realization that this thing had just read his thoughts which also happened to be an insult to its people.
+Zeke had turned a pale shade of green at the realization that this thing had just read his thoughts which also happened to be an insult to its people.
 
   
 
-“I–, I’m–, I’m sorry,” Zach forced out.
+“I–, I’m–, I’m sorry,” Zeke forced out.
 
   
 
@@ -237,7 +237,7 @@ Joyce just looked at him questioningly then it seemed to dawn on her what the in
 
   
 
-“No. I can only sense Zach’s thoughts normally, but they are so charged with emotion now it’s like he’s speaking them out loud to me. He is my bond,” Ixanae said like this was the most normal thing in the world.
+“No. I can only sense Zeke’s thoughts normally, but they are so charged with emotion now it’s like he’s speaking them out loud to me. He is my bond,” Ixanae said like this was the most normal thing in the world.
 
   
 
@@ -257,15 +257,15 @@ Joyce just looked at him questioningly then it seemed to dawn on her what the in
 
   
 
-“It would be unfortunate for us!!” Zach screeched in a voice that betrayed his panic. “You need to get out of here! My parents will be home soon, Jack probably called someone about you already. Who knows who’s on their way!? You need to leave!”
+“It would be unfortunate for us!!” Zeke screeched in a voice that betrayed his panic. “You need to get out of here! My parents will be home soon, Jack probably called someone about you already. Who knows who’s on their way!? You need to leave!”
 
   
 
-“Zachary Brian Philips!” scolded Joyce. “Settle down! You are being ridiculous.”
+“Ezekiel Brian Philips!” scolded Joyce. “Settle down! You are being ridiculous.”
 
   
 
-Her admonishment silenced Zach so completely he didn’t even have a thought run through his head. “Ixanae, while my friend here is a walking, talking overreaction right now, he’s not wrong. We need to get you somewhere you won’t be seen while we figure out what the heck is going on,” she continued with a dismissive gesture in Zach’s direction.
+Her admonishment silenced Zeke so completely he didn’t even have a thought run through his head. “Ixanae, while my friend here is a walking, talking overreaction right now, he’s not wrong. We need to get you somewhere you won’t be seen while we figure out what the heck is going on,” she continued with a dismissive gesture in Zeke’s direction.
 
   
   
